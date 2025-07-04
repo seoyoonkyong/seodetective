@@ -1,0 +1,2 @@
+# seodetective
+seodetective's page
